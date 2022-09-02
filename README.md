@@ -14,3 +14,11 @@ The thought that you cannot think.
 
 Taste. People have tastes, for the blue, blue ocean.
 
+Profanity & other things.
+
+We likely can commit suicide, but we most likely do not. No because, just leave it like that.
+
+The trap & the trapped are the same thing.
+
+Standing in the possibility.
+
